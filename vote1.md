@@ -3,9 +3,3 @@
 * ASDSDSAD.
 * VXVXVXCX.
 * GDCXVCVCV.
-
-### What additional information on this page would be helpful?
-* CCCCCCC.
-* AAAAAAAA.
-* BBBBBBBB.
-* DDDDDDDD.
