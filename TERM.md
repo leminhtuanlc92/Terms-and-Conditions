@@ -1,2 +1,11 @@
+### What additional information on this page would be helpful?
+* Lorem Ipsum is simply dummy text of the printing and typesetting industry. Lorem Ipsum has been the industry’s standard dummy text ever since the 1500s.
+* ASDSDSAD.
+* VXVXVXCX.
+* GDCXVCVCV.
 
-The following Terms and Conditions shall be applicable to all lenders and borrowers on the P2P Lending platform of BrickWallet. Please read these Terms carefully to make sure you understand them.
+### What additional information on this page would be helpful?
+* CCCCCCC.
+* AAAAAAAA.
+* BBBBBBBB.
+* DDDDDDDD.
