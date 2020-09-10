@@ -1,4 +1,4 @@
-### Tuần làm 1 buổi t2 thôi nhỉ?
+### Tuần làm 2 buổi t2,t3 thôi nhỉ?
 * Chuẩn cơm mẹ nấu.
 * Không ý kiến gì.
 * Thôi thêm t3 nữa cho nó x2 hiệu suất.
