@@ -1,4 +1,4 @@
-### <h3>What additional information on this page would be helpful?</h3>
+### What additional information on this page would be helpful?
 * Lorem Ipsum is simply dummy text of the printing and typesetting industry. Lorem Ipsum has been the industry’s standard dummy text ever since the 1500s.
 * ASDSDSAD.
 * VXVXVXCX.
